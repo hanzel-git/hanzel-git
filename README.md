@@ -1,4 +1,4 @@
-## Rangina basta maka graduate!!!!!!
+## Tangina basta maka graduate!!!!!!
 
 
 ## 🌐 Socials:
