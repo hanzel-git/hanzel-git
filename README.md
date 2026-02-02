@@ -1,4 +1,5 @@
-## Tangina basta maka graduate!!!!!!
+## Finals week or my final week
+   stay tuned
 
 
 ## 🌐 Socials:
