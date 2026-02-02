@@ -1,5 +1,4 @@
-##  Hindi ko alam kung unang matatapos ang 
-   2nd sem o ako ang tatapusin ng 2nd sem
+##  Hindi ko alam kung unang matatapos ang 2nd sem o ako ang tatapusin ng 2nd sem
 
 
 ## 🌐 Socials:
