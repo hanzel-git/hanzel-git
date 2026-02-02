@@ -1,4 +1,4 @@
-## Hi mga Kupal👋
+## Rangina basta maka graduate!!!!!!
 
 
 ## 🌐 Socials:
